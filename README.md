@@ -12,7 +12,7 @@
 		  	  	  	        	               [ .ᐟ.ᐟNeuvillette enthusiast.ᐟ.ᐟ ]
 							
   			     ⟢" I'm usually very awkward & quiet, but I'm always happy to interact/make friends with others! "
-				  	              ( Although I do get VERY nervous on first impressions... )
+				  	            ( Mostly nervous in first impressions, but I warm up eventually. )
 					 	 ⟢" I draw and do art commissions if anyone is interested ^_^ (check my Vgen!) "
                                     ,, AFK most of the time | delayed replies to whispers ''
 	
